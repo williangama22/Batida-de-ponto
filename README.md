@@ -10,4 +10,4 @@ Samuel Soares, RA: 03.22.105212-0
 
 Rafael Santana de Paula, RA: 03.22.096845-7
 
-Gabriel Freitas, RA: 03.22.104771-1
+Gabriel de Freitas Nogueira, RA: 03.22.104771-1
